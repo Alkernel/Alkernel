@@ -35,7 +35,7 @@ Completed secondary school and pre-degree program. Formerly admitted to Lagos St
 
 ### 📫 How to reach me
 - **DM me here on GitHub** for collabs
-- **Twitter/X**: @Alkernel
+- **Twitter/X**: @Alkernel_dev
 - For work inquiries: available on Upwork/Fiverr — ask for link
 
 ---
